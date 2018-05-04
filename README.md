@@ -1,2 +1,0 @@
-# astronomippk.github.io
-astronomy
